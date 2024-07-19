@@ -11,3 +11,6 @@ Líder: Clara e Vitor.
 
 ## Link Overleaf:
 https://www.overleaf.com/9899957636wjtwmdmvtcbw#948e1d
+
+##link apresentacao
+https://www.canva.com/design/DAGLGit_T5A/XiZiO45iP0QFeabjuCI41Q/edit?utm_content=DAGLGit_T5A&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
